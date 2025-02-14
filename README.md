@@ -1,1 +1,1 @@
-# Classification-d-images-d-h-maties
+# MALARIA
